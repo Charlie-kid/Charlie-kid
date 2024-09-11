@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Charlie-kid
-- 🌱 I’m currently learning nothing
+- | just another dumass
 - 📫 How to reach me : Waiting in Valhalla
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Nothing is real
